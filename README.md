@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mit-net-ai
-- 👀 I’m interested in ...technology,outdoors & Daddys
+- 👀 I’m interested in ...technology, outdoors & Daddys
 - 🌱 I’m currently learning ...networking 
 - 💞️ I’m looking to collaborate on ...workflow
 - 📫 How to reach me ...[intel.payportal@gmail.com][pandorumliquidity.sma@gmail.com][pandorumliquiditygenerate@outlook.com]
